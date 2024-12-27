@@ -1,6 +1,6 @@
 ## idk how to do this
 <img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/>
-i hope i did this right i havent coded since like, 4th grade
+this was so fun to make i love picmix sm
 
 <!--
 **toddalquist-luvr/toddalquist-luvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
