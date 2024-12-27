@@ -1,4 +1,6 @@
-## Hi there 👋
+## idk how to do this
+<img src="https://th.bing.com/th/id/OIP.TQla4qijBdE5R3CapilrJAHaIG?rs=1&pid=ImgDetMain"/>
+i hope i did this right i havent coded since like, 4th grade
 
 <!--
 **toddalquist-luvr/toddalquist-luvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
