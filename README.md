@@ -1,5 +1,5 @@
 ## idk how to do this
-<img src="https://th.bing.com/th/id/OIP.TQla4qijBdE5R3CapilrJAHaIG?rs=1&pid=ImgDetMain"/>
+<img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/>
 i hope i did this right i havent coded since like, 4th grade
 
 <!--
