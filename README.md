@@ -1,6 +1,6 @@
 idk how to do this
 
-![yellow](https://komarev.com/ghpvc/?username=toddalquist-luvr&yellow)
+![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=yellow&style=plastic)
 
 <img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/>
 
