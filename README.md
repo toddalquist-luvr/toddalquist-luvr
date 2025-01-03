@@ -4,7 +4,7 @@
 
 HAII! ^_^ im ariana
 
-<a href=”https://everskies.com/user/clownbear-2274885”>everskies</a>
+<a href="https://everskies.com/user/clownbear-2274885">everskies</a>
 
 <!--
 **toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
