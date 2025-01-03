@@ -1,13 +1,12 @@
-idk how to do this
-
 ![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic)
 
 <img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/>
 
-this was so fun to make i love picmix sm
-
+HAII! ^_^ im ariana
+<a href=”https://everskies.com/user/clownbear-2274885”>everskies.</a>
+-
 <!--
-**toddalquist-luvr/toddalquist-luvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
