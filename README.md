@@ -9,9 +9,6 @@ HAII! ^_^ im ariana
 <img src="https://cdn.everskies.com/media/attachment/FtZ85ipF95YxD1XiW7CP.png"/>
 
 fartpoop4 and toot says hello because sadly they are trapped in this image, forever!!!!!! sorry guys
-
-<iframe src="https://www.2embed.cc/embedtv/tt3032476&s=6&e=11" width="100%" height="100%" frameborder="0" scrolling="no" allowfullscreen></iframe>
-
 <!--
 **toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
