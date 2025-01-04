@@ -8,7 +8,7 @@ HAII! ^_^ im ariana
 
 <img src="https://cdn.everskies.com/media/attachment/FtZ85ipF95YxD1XiW7CP.png"/>
 
-fartpoop4 and toot says hello !!!!!!
+fartpoop4 and toot says hello because sadly they are trapped in this image, forever!!!!!! sorry guys
 
 <!--
 **toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
