@@ -6,9 +6,7 @@ HAII! ^_^ im ariana
 
 <a href="https://everskies.com/user/clownbear-2274885">everskies!</a> ~ <a href="https://www.tiktok.com/@shriveledforeskin?is_from_webapp=1&sender_device=pc">tiktok!</a> ~ <a href="https://toddalquist.atabook.org/">ata!</a> ~ <a href="https://toddalquist.straw.page/">strawpage!</a>
 
-<img src="https://cdn.everskies.com/media/attachment/FtZ85ipF95YxD1XiW7CP.png"/>
-
-fartpoop4 and toot says hello because sadly they are trapped in this image, forever!!!!!! sorry guys
+- ^_^
 <!--
 **toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
