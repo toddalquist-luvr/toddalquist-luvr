@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=viewers!+^o^&abbreviated=true))
+![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=viewers!+^o^&abbreviated=true)
 
 <img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/>
 
