@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=viewers!+^o^&abbreviated=true)
 
-<img src="https://img1.picmix.com/output/pic/normal/9/9/2/6/12296299_8f40b.gif"/> omg its broken hold on
+<img src="https://tenor.com/view/todd-alquist-breaking-bad-gif-10126980892482527231"/>
 
 HAII! ^_^ im ariana
 
