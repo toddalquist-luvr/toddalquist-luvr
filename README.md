@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=viewers!+^o^&abbreviated=true)
 
-<div class="tenor-gif-embed" data-postid="10126980892482527231" data-share-method="host" data-aspect-ratio="0.974026" data-width="100%"><a href="https://tenor.com/view/todd-alquist-breaking-bad-gif-10126980892482527231">Todd Alquist Breaking Bad GIF</a>from <a href="https://tenor.com/search/todd+alquist-gifs">Todd Alquist GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="https://tenor.com/view/todd-alquist-breaking-bad-gif-10126980892482527231"/>
 
 HAII! ^_^ im ariana
 
