@@ -5,6 +5,8 @@
 HAII! ^_^ im ariana
 
 <a href="https://everskies.com/user/clownbear-2274885">everskies!</a> ~ <a href="https://www.tiktok.com/@shriveledforeskin?is_from_webapp=1&sender_device=pc">tiktok!</a> ~ <a href="https://toddalquist.atabook.org/">ata!</a> ~ <a href="https://toddalquist.straw.page/">strawpage!</a>
+
+i dont use spotify+dont know how 2 code that thing in.. but imagine its just weezer and abandoned pools 25/8
   
 <!--
 **toddalquist-luvr/toddalquist-luvr** is ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
