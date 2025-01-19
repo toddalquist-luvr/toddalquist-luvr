@@ -2,7 +2,25 @@
 
 <img src="https://media1.tenor.com/m/jIpDd3eW3_8AAAAd/todd-alquist-breaking-bad.gif"/>
 
-HAII! ^_^ im ariana
+<style>
+        .animated-text {
+            font-size: 12px;
+            font-weight: bold;
+            animation: bounce 2s infinite alternate;
+        }
+
+        @keyframes bounce {
+            0% {
+                transform: translateY(0);
+            }
+            100% {
+                transform: translateY(-10px);
+            }
+        }
+    </style>
+
+
+    <p class="animated-text">HAI!! im ariana/chud ^_^ </p> 
 
 <a href="https://everskies.com/user/clownbear-2274885">everskies!</a> ~ <a href="https://www.tiktok.com/@shriveledforeskin?is_from_webapp=1&sender_device=pc">tiktok! RIP TIK TOC... NOW I CANT GOON TO YOSHIKAGE KIRA EDITS</a> ~ <a href="https://toddalquist.atabook.org/">ata!</a> ~ <a href="https://toddalquist.straw.page/">strawpage!</a> ~ <a href="https://www.instagram.com/asecretgnome?igsh=MWE0NjdmbW5hY201Mg=="> instagram!</a>
 
