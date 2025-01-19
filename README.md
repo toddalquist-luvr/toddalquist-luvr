@@ -4,7 +4,7 @@
 
 HAII! ^_^ im ariana
 
-<a href="https://everskies.com/user/clownbear-2274885">everskies!</a> ~ <a href="https://www.tiktok.com/@shriveledforeskin?is_from_webapp=1&sender_device=pc">tiktok!</a> ~ <a href="https://toddalquist.atabook.org/">ata!</a> ~ <a href="https://toddalquist.straw.page/">strawpage!</a> ~ <a href="https://www.instagram.com/asecretgnome?igsh=MWE0NjdmbW5hY201Mg=="> instagram!</a>
+<a href="https://everskies.com/user/clownbear-2274885">everskies!</a> ~ <a href="https://www.tiktok.com/@shriveledforeskin?is_from_webapp=1&sender_device=pc">tiktok! RIP TIK TOC... NOW I CANT GOON TO YOSHIKAGE KIRA EDITS</a> ~ <a href="https://toddalquist.atabook.org/">ata!</a> ~ <a href="https://toddalquist.straw.page/">strawpage!</a> ~ <a href="https://www.instagram.com/asecretgnome?igsh=MWE0NjdmbW5hY201Mg=="> instagram!</a>
 
 i dont use spotify+dont know how 2 code that thing in.. but imagine its just weezer and abandoned pools 25/8
   
