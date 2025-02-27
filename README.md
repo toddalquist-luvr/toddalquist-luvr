@@ -17,9 +17,11 @@
 
 <img src="https://external-media.spacehey.net/media/smPJJpqZ235Q9kGAQnCksNipgL3q6f9gJT_62Y-4jqy0=/https://i.ibb.co/thmpb9C/tumblr-inline-prh441p-Gu-D1vxygeb-500.gif"/>
 
-wanted to save my fav whisper here too: 
+wanted to save my fav whispers / messages here too: 
 
 11:35 PM[Тг:m1wni_uwq] whispers: Oh I found it!! Thank you very much sunshine, I am very very grateful to you, you are the best person! I will bless you 🩷💗🩷💗🩷💗🩷💗🩷💗🩷:3
+
+07:20 PM[tordhater63 >_< fictkin . #2] thinks: every time i stretch i let out a little femboy noise and i feel like thats the real me peeking into the real world
 
 
 
