@@ -24,6 +24,8 @@ wanted to save my fav whispers / messages here too:
 
 07:20 PM[tordhater63 >_< fictkin . #2] thinks: every time i stretch i let out a little femboy noise and i feel like thats the real me peeking into the real world
 
+06:41 PM[sign strawpage - semi afk] so if i :grape: a boy IRONICALLY is it okau
+
 
 <!--im so weird omg why am i legit gettng mad over people liking yoshikage kira too, i swear im not one of those hoes who are like, yk, "oh u can like him because I, ME!!!! i like him" or whatever... im just gen gettng upset people like him more than me and can draw him better than me... I LOVED HIM FOR LIKE,,, 3 YEARS SO FAR I NEED TO GET A JOB RHAHHAHA why am i tearing up omg im so weird i hate kira hes the reason why im like this now ugh-->
 
