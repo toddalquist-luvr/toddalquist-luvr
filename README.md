@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=you+lovelys+^o^)
 
-<img src="https://github.com/user-attachments/assets/cb0037dc-5a7c-46f0-a565-cba3879a7905" height="200" width="200"/>
+![todd-alquist-breaking-bad](https://github.com/user-attachments/assets/c00b45a6-38ae-4e83-827a-d6571d185b3f)
+
 
 | my favs  |
 | -------- |
